@@ -1,2 +1,2 @@
 # mirrors
-skills on me
+skills in the world
